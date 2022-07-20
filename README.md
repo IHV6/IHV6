@@ -7,5 +7,5 @@
 
 ### How to reach me
 * Email: [igorverizub@gmail.com](mailto:igorverizub@gmail.com)
-* Telegram: [@igorverizub](https://t.me/igorverizub)
+* Telegram: [@IHV26](https://t.me/IHV26)
 
